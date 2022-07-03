@@ -1,5 +1,5 @@
 
-<h2>hello im R Σ χ ++</h2> <div align="left"><img alt="Avux"src="https://cdn.discordapp.com/attachments/800173576803319869/905371420656300052/275593424008201.png"></div>
+<h2>hello im R Σ χ ++</h2> <div align="left"><img alt="s"src="https://cdn.discordapp.com/attachments/800173576803319869/905371420656300052/275593424008201.png"></div>
 <div align="left"><img alt="REXX"src="https://media.discordapp.net/attachments/800173576803319869/904486000561119292/buff_1.png?width=144&height=47"></div>
 
 <h3> 🤠 &nbsp;About Me </h3>
